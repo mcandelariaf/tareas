@@ -7,7 +7,7 @@ En la discusión de tesis para el proyecto del curso llegamos a los siguientes _
 
 1. La __obesidad__ como la forma de malnutrición más común en el mundo de acuerdo con la Organización Mundial de la Salud. 
 
-1. El descubrimiento de una __nueva raza de Pudú__ en Perú.
+1. El descubrimiento de una __nueva raza de Pudú__ en Perú y los planes de conservación de la fauna.
 
 
 
